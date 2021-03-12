@@ -1,1 +1,1 @@
-I am new to **IT industry and _loved lot to work here.
+I am new to**IT industry and_loved lot to work here.
